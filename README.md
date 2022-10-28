@@ -1,6 +1,6 @@
 # Livros de receitas :man_cook:
 
-Olá! Bem vindo ao meu livro de receitas :grin:
+Olá! Bem vindo(a) ao meu livro de receitas :grin:
 
  - Carne de Panela com Batata 
 
