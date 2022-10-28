@@ -12,13 +12,13 @@
  
 **MODO DE PREPARO** 
 
-* Leve ao fogo o leite condensado, 1/2 litro de leite, 4 gemas peneiradas e o amido de milho.
-* Mexa até virar um creme.
-* Coloque em um refratário e reserve.
-* Em uma vasilha coloque o restante do leite com o achocolatado, molhe a bolacha uma a uma e coloque em cima do primeiro creme, até terminar a bolacha.
-* Reserve.
-* Bata as claras em neve.
-* Coloque o creme de leite e mexa devagar.
-* Acrescente 4 colheres de açúcar a este creme, mexendo sempre devagar.
-* Coloque em cima da bolacha e salpique achocolatado por cima.
-* Leve à geladeira de um dia para o outro.
+1. Leve ao fogo o leite condensado, 1/2 litro de leite, 4 gemas peneiradas e o amido de milho.
+2. Mexa até virar um creme.
+3. Coloque em um refratário e reserve.
+4. Em uma vasilha coloque o restante do leite com o achocolatado, molhe a bolacha uma a uma e coloque em cima do primeiro creme, até terminar a bolacha.
+5. Reserve.
+6. Bata as claras em neve.
+7. Coloque o creme de leite e mexa devagar.
+8. Acrescente 4 colheres de açúcar a este creme, mexendo sempre devagar.
+9. Coloque em cima da bolacha e salpique achocolatado por cima.
+10. Leve à geladeira de um dia para o outro.
