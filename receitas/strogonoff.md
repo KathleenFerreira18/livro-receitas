@@ -1,29 +1,28 @@
-# Strogonoff de Frango :)
+# Carne de Panela com Batata 😊
 
-**INGREDIENTES**
+**INGREDIENTES** 
 
-- 3 peitos de frango cortados em cubos
-- 1 dente de alho picado
-- sal e pimenta a gosto
-- 1 cebola picada
-- 2 colheres (sopa) de maionese
-- 1 colher de manteiga
-- 1/2 copo de ketchup
-- 1/3 copo de mostarda
-- 1 copo de cogumelos
-- 1 copo de creme de leite
-- batata palha a gosto
+ - 1 kg de carne de acém cortada em cubos grandes
+ - 2 colheres (sopa) de óleo de milho
+ - 2 colheres (sopa) de cebola granulada
+ - 2 cubos de caldo natural
+ - colorau a gosto
+ - cheiro-verde desidratado a gosto
+ - água ate cobrir a carne
+ - 5 batatas médias descascadas e cortadas ao meio
 
-MODO DE PREPARO
+**MODO DE PREPARO** 
 
-Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
+1- Em uma panela de pressão coloque o óleo e a cebola, deixe até que ela fique bem moreninha.
 
-Em uma frigideira grande, derreta a manteiga e doure a cebola.
+2- Junte a carne cortada em cubos médios, deixe dourar por 15 minutos.
 
-Junte o frango temperado até que esteja dourado.
+3- Junte os 2 cubos de caldo natural e o colorau a gosto.
 
-Adicione os cogumelos, o ketchup e a mostarda.
+4- Coloque a água até que cubra a carne, não ultrapasse a carne.
 
-Incorpore o creme de leite e retire do fogo antes de ferver.
+5- Coloque na pressão por 25 minutos.
 
-Sirva com arroz branco e batata palha.
+6- Retire do fogo, tire a pressão e junte as batatas e o cheiro-verde.
+
+7- Coloque na pressão novamente, conte 5 minutos após a panela de pressão começar a apitar e desligue o fogo.
